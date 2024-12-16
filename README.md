@@ -12,4 +12,4 @@
 
 **Должность:** директор 
 
-![image] (https://img.freepik.com/free-photo/young-beautiful-woman-wearing-coat-walking-city_1303-26755.jpg)
+![image](https://img.freepik.com/free-photo/young-beautiful-woman-wearing-coat-walking-city_1303-26755.jpg)
